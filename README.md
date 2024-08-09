@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @chicken-notanymore
 - 👀 I’m interested in ...learning
-- 🌱 I’m currently learning ...how survive
+- 🌱 I’m currently learning ...how to survive dying and living at a same time
 - 💞️ I’m looking to collaborate on ...nothing
 - 📫 How to reach me ...dm
 - 😄 Pronouns: ...Hell
